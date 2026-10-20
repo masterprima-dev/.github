@@ -6,7 +6,7 @@
 
 **Ahlinya Bimbel CPNS, Kedinasan, UTBK, TNI Polri & SMA Taruna — No.1 di Indonesia**
 
-[masterprima.com](https://masterprima.com)
+[masterprima.com](https://masterprima.com) · [Instagram](https://www.instagram.com/masterprimapusat/) · [Facebook](https://www.facebook.com/pknstanmalang1/)
 
 </div>
 
@@ -14,15 +14,23 @@
 
 ## Tentang Masterprima
 
-Masterprima adalah lembaga bimbingan belajar yang fokus mempersiapkan peserta didik masuk ke jalur seleksi yang kompetitif:
+Masterprima (LBB Masterprima) adalah lembaga bimbingan belajar yang fokus mendampingi siswa masuk ke jalur seleksi yang kompetitif:
 
-- 🏛️ **CPNS**
+- 🏛️ **CPNS & PPPK**
 - 🎓 **Sekolah Kedinasan**: PKN STAN, Polstat STIS, IPDN, STIN, dll. (SKD, SKB, Psikotes)
-- 📝 **UTBK**
+- 📝 **UTBK & Program Reguler**
 - 🪖 **TNI & Polri**: Akmil, Akpol, Bintara, Tamtama
 - 🏫 **SMA Taruna**
 
-Berdiri lebih dari 16 tahun, berpusat di Malang dengan jaringan cabang di berbagai kota.
+Berdiri sejak **18 Januari 2010** di Malang oleh M. Hasyim Ashari (Founder & CEO). Kantor pusat di Malang, dengan cabang di Jawa Timur dan kota lain seperti Yogyakarta, Bekasi, Denpasar, Makassar, dan Mamuju, plus jaringan mitra kemitraan (franchise).
+
+## Platform digital
+
+Selain kelas tatap muka, Masterprima menjalankan sistem digital untuk operasional dan evaluasi belajar:
+
+- **Tryout online & CBT** (Computer Based Test) untuk simulasi ujian Kedinasan, CPNS/PPPK, UTBK, dan TNI/Polri
+- **SIM** (Sistem Informasi Manajemen) untuk memantau perkembangan cabang dan mitra
+- Website utama [masterprima.com](https://masterprima.com)
 
 ## Tentang organisasi ini
 
